@@ -6,6 +6,6 @@
 
 💞️ I’m looking to collaborate on projects with other developers that are geared toward equity and inlcusivity, education, environment, and/or sustainability, or generally any tools or products helping us to live and work better. 
 
-📫 Feel free to connect with me at rima.chaib@gmail.com or [rimachaib.com](https://rimachaib.com)
+📫 Feel free to connect with me at https://rimachaib.com.
 
 
